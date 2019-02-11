@@ -1,4 +1,4 @@
-This is bad
-busy with CFA
+Busy semester!
+Now busy with CFA
 And FRM
-And quizes
+And quizes. Sad.
